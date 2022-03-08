@@ -27,3 +27,11 @@ Stress is neither beneficial nor negative in and of itself. It is determined by 
 ### Stress is addictive 
 
 Stress, like other addictive substances such as drugs, alcohol, gambling, and smoking, works on the same reward circuits in the brain.
+
+### Making Use of Stress Energy as Fuel
+
+1. Investigate the information it is attempting to convey.
+
+2. Ask clarifying inquiries to get to the heart of the matter.
+
+3. Channel that same enthusiasm into some form of positive activity.
