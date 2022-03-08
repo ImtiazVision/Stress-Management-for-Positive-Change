@@ -42,4 +42,4 @@ Stress, like other addictive substances such as drugs, alcohol, gambling, and sm
 
 2. **Appreciate** : Gratitude alters our brain chemistry, helping us to think more clearly, logically, and even creatively, allowing us to solve issues more effectively.
 
-3. **Adjust** 
+3. **Adjust** : Take one tiny action step that reduces the difficulty we're confronting, and also spend a minute or two recharging our own batteries so we feel more capable of dealing with it.
