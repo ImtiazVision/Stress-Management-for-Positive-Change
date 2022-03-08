@@ -35,3 +35,11 @@ Stress, like other addictive substances such as drugs, alcohol, gambling, and sm
 2. Ask clarifying inquiries to get to the heart of the matter.
 
 3. Channel that same enthusiasm into some form of positive activity.
+
+### Stress Mastery Formula 
+
+1. **Assess** 
+
+2. **Appreciate** : Gratitude alters our brain chemistry, helping us to think more clearly, logically, and even creatively, allowing us to solve issues more effectively.
+
+3. **Adjust** 
