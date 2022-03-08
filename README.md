@@ -50,6 +50,6 @@ Stress, like other addictive substances such as drugs, alcohol, gambling, and sm
 
 >  **Sensing ---> Feeling --> Thinking** 
 
-### What our brain wants from us is Cope, Connection, and Concentrate 
+### What our brain wants from us is Cope, Connection, and Clarity 
 
 What our brains really need and seek is the ability to cope. Connection with others creates a feeling of belonging as well as meaning and purpose, allowing us to concentrate on what is most important.
