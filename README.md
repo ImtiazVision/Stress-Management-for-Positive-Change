@@ -2,7 +2,7 @@
 
 ### Defination of Stress 
 
-**Stress** : The gap between demand and capacity is referred to as stress. The disparity between demand and capability will lead to stress. Stress provides us with knowledge and energy that we may utilize to make adjustments.
+**Stress** : The gap between demand and capacity is referred to as stress. The disparity between demand and capability will lead to stress. It provides us with knowledge and energy that we may utilize to make adjustments. It isn't really a sensation; it's an insight that we can act on, and when we do, that's when we can utilize stress for good.
 
 ### Is stress good or bad?
 
