@@ -22,3 +22,8 @@ Stress is neither beneficial nor negative in and of itself. It is determined by 
 ### Modern Monkey Mind
 
 **Modern Monkey Mind**: Our brains swing from one branch to the next, hopping about without stop, as the name "monkey mind" suggests. We're switching between conversations, social media, email, brief job chores, and a search for something we're interested in, from dozens of messages to dozens of posts to a few dozen browser tabs. All day long, we bounce from one simple task to the next, putting off anything that required a lot more concentration.Our brains swing from one branch to the next, hopping about without stop, as the name "monkey mind" suggests. We're switching between conversations, social media, email, brief job chores, and a search for something we're interested in, from dozens of messages to dozens of posts to a few dozen browser tabs. All day long, we bounce from one simple task to the next, putting off anything that required a lot more concentration.
+
+
+### Stress is addictive 
+
+Stress, like other addictive substances such as drugs, alcohol, gambling, and smoking, works on the same reward circuits in the brain.
