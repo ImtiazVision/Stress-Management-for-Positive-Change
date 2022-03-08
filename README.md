@@ -46,4 +46,6 @@ Stress, like other addictive substances such as drugs, alcohol, gambling, and sm
 
 ### Brain 1-2-3 Model 
 
-**How brain process info**:  Sensing ---> Feeling --> Thinking 
+**How brain process info**: 
+
+>  **Sensing ---> Feeling --> Thinking** 
